@@ -7,3 +7,7 @@ Deployed Link Demo:https://kimah1999.github.io/Portfolio-Resume/
 
 
 Linkedin: https://www.linkedin.com/in/kimberly-y-aguilar-h/
+
+![image](https://user-images.githubusercontent.com/87666809/152055379-f31cab6a-8f38-4d0c-bd99-4e7422e26b84.png)
+![image](https://user-images.githubusercontent.com/87666809/152055553-0b2b1b00-73ab-4c55-ab6e-ad6073570e4b.png)
+
