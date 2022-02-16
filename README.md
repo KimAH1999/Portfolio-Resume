@@ -11,6 +11,7 @@ Linkedin: https://www.linkedin.com/in/kimberly-y-aguilar-h/
 Resume Google Document: https://docs.google.com/document/d/17N7sUxQNcrqAg8DEQhV9Z2sqZvbCL7-Un4PEpCq0gcA/edit?usp=sharing
 
 ![image](https://user-images.githubusercontent.com/87666809/152055379-f31cab6a-8f38-4d0c-bd99-4e7422e26b84.png)
-![image](https://user-images.githubusercontent.com/87666809/154198192-8b93a53b-cfba-4d24-bb01-f9b5baaf3ae2.png)
+![image](https://user-images.githubusercontent.com/87666809/154198338-90bd8dc1-7f88-4496-a57f-dd3640abe7a7.png)
+
 
 
